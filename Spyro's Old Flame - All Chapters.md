@@ -3984,7 +3984,7 @@ Thanks a bunch for reading, and sorry for leaving you with yet another cliff-han
 
 <i>Chapter 10, baby! If you're reading this, thanks for your patience! These things always take a lot longer than I expect them too. I know before that I said that this series was going to be 10 chapters, but this however is NOT the last chapter. There is another one coming!
     
-First of all, I wanna extend a big thank you to [url=https://shadowwulf1989.sofurry.com/]Shadowwulf[/url] for helping me with some well-needed proof-reading. Big thanks mate! 
+First of all, I wanna extend a big thank you to [url=https://shadowwulf1989.zerolink.com/]Shadowwulf[/url] for helping me with some well-needed proof-reading. Big thanks mate! 
     </i><br><p style='text-align: center'>~ ~ ~</p>
 
 Flame raced through the dark tunnel, his paws splashing in the rising water. He knew he didn't have much time. He knew it because the water was already reaching up to his knees. It dripped from the stalactites, burbled in through cracks in the wall, filling every crevice and reminding him that soon it'd be too late. He ignored it and pushed on.
@@ -4343,14 +4343,14 @@ There it is, chapter 10! I hope you enjoyed it. I realize it's probably the dark
 
 And thanks for being so patient with me and my highly irregular upload schedule! You guys mean the world to me and I really don't want to let you down, and I hope this chapter, even though it's shorter than the previous ones, was worth the wait. And this is not the last chapter. There is another one coming!
 
-PS! Remember [url=https://www.furaffinity.net/view/37086976/]this[/url] piece? Now that I think about it, I think it fits pretty well with the two dragons hugging in the last scene, so I've retroactively decided that's what it's for!
+PS! Remember [url=https://www.x.net/view/x/]this[/url] piece? Now that I think about it, I think it fits pretty well with the two dragons hugging in the last scene, so I've retroactively decided that's what it's for!
 
 
 # Chapter 11 - Precious and Fragile Things
 
 <i>Chapter 11, baby! I'll start by saying that this is not going to be the last chapter after all. There's another one coming. This one starts off a little heavy, unavoidable maybe considering where we left things, but I hope you'll feel it was worth it in the end. 
 
-Also, big thanks to [url=https://shadowwulf1989.sofurry.com/]Shadowwulf[/url] and jkbscopes1234 for proof-reading and feedback.</i><br><p style='text-align: center'>~ ~ ~</p>
+Also, big thanks to [url=https://shadowwulf1989.zerolink.com/]Shadowwulf[/url] and jkbscopes1234 for proof-reading and feedback.</i><br><p style='text-align: center'>~ ~ ~</p>
 
 For the first time in the young hero's life, Spyro didn't know what to do. It was like his paws were glued to the grass, frozen in indecision as minute after minute passed. 
 
@@ -4715,7 +4715,7 @@ So there you have it, chapter 11! As always, I hope the long wait was worth it. 
 
 That’s right, chapter 12 will not be the last chapter after all. I realized while working on this that I'm gonna need a bit more time to wrap up the series, so there will be another chapter, possibly two, to follow this one! I hope that's alright! 
 
-Oh, and if you missed it, check out this awesome fanart I got from Sagorashi https://www.furaffinity.net/view/39663157/
+Oh, and if you missed it, check out this awesome fanart I got from Sagorashi https://www.x.net/view/39663157/
 
 Anyway, here it is. Chapter 12 in our ongoing saga about the world's unluckiest dragon and his purple boyfriend. 
 </i><br><p style='text-align: center'>~ ~ ~</p>
@@ -6388,7 +6388,7 @@ With that, she unfurled her great wings and with a single, heavy beat, thrust he
 
 Artwork by Sagorashi to go with the chapter. Check it out here! 
 
-https://www.furaffinity.net/view/41786059
+https://www.x.net/view/41786059
 
 <p style="text-align: center;">~ ~ ~</p>
 
